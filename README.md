@@ -1,6 +1,6 @@
 ## 🧩 About Me 
-Hayy!👋🏻🌻<br>
-*It's me Karen Yuan Ari* <br><br> 
+H i i !👋🏻🌻<br>
+*It's me* Karen Yuan Ari <br><br> 
 🍦 Karen, kayy <br>
 📍 Temanggung, Jawa Tengah <br>
 🧚🏻 est'04 <br>

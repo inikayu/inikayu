@@ -3,9 +3,9 @@ Hayy!👋🏻🌻<br>
 *It's me Karen Yuan Ari* <br><br> 
 🍦 Karen, kayy <br>
 📍 Temanggung, Jawa Tengah <br>
-🧚🏻 Est'04 <br>
+🧚🏻 est'04 <br>
 🏫 Geofisika'22 <br>
-✏ Corat coret <br>
+✏ corat coret <br>
 🎬 history, thriller, action <br><br>
 *all in details* 🦔 <br>
 *blue skies, melancholic* ⛅ <br><br>
